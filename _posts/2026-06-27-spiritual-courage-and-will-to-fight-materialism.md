@@ -11,4 +11,4 @@ reject what consumerism has to offer. The stronger the urge is, the greater the 
 
 So the question that a believer must ask himself is:
 
-What are the ways I can ascend himself in terms of spirituality and think beyond these worldly pursuits and material possessions?
+What are the ways I can ascend myself in terms of spirituality and think beyond these worldly pursuits and material possessions?
